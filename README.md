@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nai0ns
-- 👀 I’m interested in the events we cannot see
+- 👀 I’m interested in fundamental natural forces
 - 🌱 I’m currently learning how to model properties
 - 💞️ I’m looking to collaborate in generative funtional design, biology and art
 - 📫 How to reach me: message me here
